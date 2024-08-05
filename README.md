@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BorisNaydenov
-- 👀 I’m interested in Networking. On the domain side - Finance and Investments, as well as environmental, social and governance (ESG) topics. I want to get better at coding. I have been into Marketing before.
+- 👀 I want to share more about me here. I am interested in - Finance and Investments, as well as environmental, social and governance (ESG) topics. I want to get better at coding. I have been into Marketing before.
 - 🌱 I’m currently learning Machine Learning, Management control, and Audit.
   
   These subjects are part of my Master's degree in International Business.

@@ -13,7 +13,7 @@
   
  💞️ I’m looking to collaborate on whatever brings value. Ideally a Master's thesis with your company?
  
- ⚡ [![Watch my Skills Self-Evaluation](https://img.youtube.com/vi/)](https://youtu.be/7InM7vaz7-o?si=I_QEhsLniF4UXDCE)
+ ⚡ [![Watch my Self-Evaluation](https://img.youtube.com/vi/)](https://youtu.be/7InM7vaz7-o?si=I_QEhsLniF4UXDCE)
        I am evaluating my skills based on the top 10 on-demand skills for 2025.
  
   📫 How to reach me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a>

@@ -6,7 +6,7 @@
 - Finance and Investments: I’m passionate about understanding financial markets, investment strategies, and economic trends.                                                                     
 - Marketing: I enjoy exploring consumer behavior, branding, and effective communication strategies.                                                                                           
 - Environmental, Social, and Governance (ESG): I’m committed to sustainability and ethical business practices.                                                                                 
-- Data: I thrive on analyzing data—whether it’s financial data, market trends, customer or ESG insights.
+- Data: I enjoy analyzing data and connecting the dots — whether it’s financial data, market trends, customer or ESG insights.
 
  🌱 I’m currently learning Machine Learning, Management control, and Audit. Soon to be a Master in International Business.
 

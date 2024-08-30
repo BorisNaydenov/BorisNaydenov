@@ -3,9 +3,9 @@
  
   👀 I want to share more about me. My interests span a wide range of topics:
 
-- Marketing: I enjoy exploring consumer behavior, branding, and effective communication strategies. And the psychology connected.                                                                                            
+- Marketing: I enjoy exploring consumer behavior, branding, and effective communication strategies. And psychology.                                                                                            
 - Environmental, Social, and Governance (ESG): I’m committed to sustainability and ethical business practices.
-- - Finance and Investments: I’m passionate about understanding financial markets, investment strategies, and economic trends.                                                                     
+-  Finance and Investments: I’m passionate about understanding financial markets, investment strategies, and economic trends.                                                                     
                                                                              
 - Data: I enjoy analyzing data and connecting the dots — whether it’s financial data, market trends, customer or ESG insights.
 

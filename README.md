@@ -3,15 +3,16 @@
  
   👀 I want to share more about me. My interests span a wide range of topics:
 
-- Finance and Investments: I’m passionate about understanding financial markets, investment strategies, and economic trends.                                                                     
-- Marketing: I enjoy exploring consumer behavior, branding, and effective communication strategies.                                                                                           
-- Environmental, Social, and Governance (ESG): I’m committed to sustainability and ethical business practices.                                                                                 
+- Marketing: I enjoy exploring consumer behavior, branding, and effective communication strategies. And the psychology connected.                                                                                            
+- Environmental, Social, and Governance (ESG): I’m committed to sustainability and ethical business practices.
+- - Finance and Investments: I’m passionate about understanding financial markets, investment strategies, and economic trends.                                                                     
+                                                                             
 - Data: I enjoy analyzing data and connecting the dots — whether it’s financial data, market trends, customer or ESG insights.
 
- 🌱 I’m currently learning Machine Learning, Management control, and Audit. Soon to be a Master in International Business.
+ 🌱 I’m soon to be a Master in International Business - I have a remaining Master's thesis to write and Machine learning course to do. 
 
-  
- 💞️ I’m looking to collaborate on whatever brings value. Ideally a Master's thesis with your company?
+
+ 💞️ I’m looking to collaborate on projects that bring value. 
  
  ⚡ [![Watch my Introduction](https://img.youtube.com/vi/)](https://youtu.be/7InM7vaz7-o?si=I_QEhsLniF4UXDCE)
  

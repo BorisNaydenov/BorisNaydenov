@@ -9,6 +9,7 @@
  
   
   🌱 I’m soon to be a Master in International Business. 
+  
   I enjoy analyzing data and connecting the dots — whether it’s financial data, market trends, customer or ESG insights.
 
  

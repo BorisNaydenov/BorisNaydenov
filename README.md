@@ -1,4 +1,5 @@
 👋 Hi, I’m @BorisNaydenov and  I’m looking to collaborate on projects that bring value. 
+
 🌱 Whether it’s financial data, market trends, customer or ESG insights - I enjoy analyzing data and connecting the dots.
 
  

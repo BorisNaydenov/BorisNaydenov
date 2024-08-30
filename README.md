@@ -13,12 +13,11 @@
   
  💞️ I’m looking to collaborate on whatever brings value. Ideally a Master's thesis with your company?
  
- ⚡ [![Watch my Self-Evaluation](https://img.youtube.com/vi/)](https://youtu.be/7InM7vaz7-o?si=I_QEhsLniF4UXDCE)
-       I am evaluating my skills based on the top 10 on-demand skills for 2025.
+ ⚡ [![Watch my Intro](https://img.youtube.com/vi/)](https://youtu.be/7InM7vaz7-o?si=I_QEhsLniF4UXDCE)
  
   📫 How to reach me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a>
  
-  ⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book, that could potentially make me a 100x return. 
+  ⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book. You think that you can trust all written by prestigious authors and sources? Think twice! 
 
 
 <!---

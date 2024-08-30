@@ -22,7 +22,7 @@
  
 ⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book. 
 
-       (So the "Fun fact" shows my critical thinking skill but it is not a fun fact.)
+   (So the "Fun fact" shows my critical thinking skill but it is not a fun fact.)
 
 
 <!---

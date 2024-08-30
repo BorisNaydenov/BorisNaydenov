@@ -4,11 +4,9 @@
 
  💞️ I’m looking to collaborate on projects that bring value. 
  
- ⚡ Watch my Introduction and answer of [!["Tell me about you?" ](https://img.youtube.com/vi/)](https://youtu.be/7InM7vaz7-o?si=I_QEhsLniF4UXDCE) in 3 minutes
+ 👀 Watch my Introduction and answer of [!["Tell me about you?" ](https://img.youtube.com/vi/)](https://youtu.be/7InM7vaz7-o?si=I_QEhsLniF4UXDCE) in 3 minutes
 
  
-
-  👀 I want to share more about me. 
   
   🌱 I’m soon to be a Master in International Business. My interests span a wide range of topics:
 

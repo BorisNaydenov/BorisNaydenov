@@ -20,7 +20,7 @@
  
   📫 How to reach me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a>
  
-  ⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book. You think that you can trust all written by prestigious authors and sources? Think twice! 
+  ⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book. This shows that I understand critical thinking but it is not a fun fact.
 
 
 <!---

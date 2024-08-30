@@ -13,6 +13,11 @@
 
 ⚡So the "Fun fact" shows my critical thinking skill but is it a fun fact?
 
+  🌱 I’m soon to be a Master in International Business. 
+  
+  
+  🌱 Whether it’s financial data, market trends, customer or ESG insights - I enjoy analyzing data and connecting the dots.
+
 
 <!---
 BorisNaydenov/BorisNaydenov is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

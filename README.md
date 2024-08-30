@@ -10,13 +10,13 @@
 
  
  
-📫 How to reach me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a>
+
  
 ⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book. 
 
 ⚡So the "Fun fact" shows my critical thinking skill but is it a fun fact?
 
-  
+ 📫 How to reach me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> 
 
 
 <!---

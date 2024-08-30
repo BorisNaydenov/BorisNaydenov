@@ -1,4 +1,6 @@
 👋 Hi, I’m @BorisNaydenov and  I’m looking to collaborate on projects that bring value. 
+🌱 Whether it’s financial data, market trends, customer or ESG insights - I enjoy analyzing data and connecting the dots.
+
  
  👀 Watch my Introduction and answer of [!["Tell me about you?" ](https://img.youtube.com/vi/)](https://youtu.be/7InM7vaz7-o?si=I_QEhsLniF4UXDCE) in 3 minutes.
 
@@ -13,10 +15,7 @@
 
 ⚡So the "Fun fact" shows my critical thinking skill but is it a fun fact?
 
-  🌱 I’m soon to be a Master in International Business. 
   
-  
-  🌱 Whether it’s financial data, market trends, customer or ESG insights - I enjoy analyzing data and connecting the dots.
 
 
 <!---

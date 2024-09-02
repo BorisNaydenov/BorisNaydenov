@@ -3,7 +3,7 @@
 🌱 Whether it’s financial data, market trends, customer or ESG insights - I enjoy analyzing data and connecting the dots.
 
  
- 👀 Watch my [![Introduction ](https://www.loom.com/share/95ff920cdbb74a68be7bc9529dabd54d?sid=4c881687-ea2e-4df5-a18c-6c61f71ff159) in 5 minutes.
+ 👀 Watch my [![ Introduction ](https://www.loom.com/share/95ff920cdbb74a68be7bc9529dabd54d?sid=4c881687-ea2e-4df5-a18c-6c61f71ff159) in 5 minutes.
 
  
   

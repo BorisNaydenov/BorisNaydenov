@@ -1,11 +1,11 @@
 👋 Hi, I’m @BorisNaydenov and  I’m looking to collaborate on projects that bring value. 
 
-🌱 Whether it’s financial data, market trends, customer or ESG insights - I enjoy analyzing data and connecting the dots.
+🌱 Whether it’s financial data, market trends, customer or ESG insights.
 
  
  👀 Watch my [Introduction](https://www.loom.com/share/95ff920cdbb74a68be7bc9529dabd54d?sid=29007d6a-938c-493a-a4e1-0d84d8c25cc5)  in 3 minutes.
 
- 👀 Take a look at my data analysis project in my repo.
+ 👀 Take a look at my data analysis projects in my repo.
 
  
   

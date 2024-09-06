@@ -1,6 +1,6 @@
 👋 Hi, I’m @BorisNaydenov and  I’m looking to collaborate on projects that bring value. 
 
-🌱 I like connecting the dots, solving problems and developing business relationships. :arrow_heading_down:
+🌱 I like connecting the dots, solving problems and developing business relationships. 
 
 
  

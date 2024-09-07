@@ -8,7 +8,7 @@
  👀 Watch my [Introduction](https://youtu.be/OBqf061-SFc)  in 3 minutes.
 
 
-[![About me: motivation, analytical thinking, adaptability](https://img.youtube.com/vi/)](https://www.youtube.com/watch?v=OBqf061-SFc)
+[![About me: motivation, analytical thinking, adaptability](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Youtubethumbnail.png)](https://www.youtube.com/watch?v=OBqf061-SFc)
 
 
 

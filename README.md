@@ -3,10 +3,14 @@
 🌱 I like connecting the dots, solving problems and developing business relationships. 
 
 
- 
- 👀 Watch my [Introduction](https://www.loom.com/share/95ff920cdbb74a68be7bc9529dabd54d?sid=29007d6a-938c-493a-a4e1-0d84d8c25cc5)  in 3 minutes.
-
  👀 Take a look at my data analysis projects in my repositories.
+ 
+ 👀 Watch my [Introduction](https://youtu.be/OBqf061-SFc)  in 3 minutes.
+
+
+[![About me: motivation, analytical thinking, adaptability](https://img.youtube.com/vi/)](https://www.youtube.com/watch?v=OBqf061-SFc)
+
+
 
 
  

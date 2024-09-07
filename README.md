@@ -5,7 +5,7 @@
 
  👀 Take a look at my data analysis projects in my repositories.
  
- 👀 Watch my [Introduction](https://youtu.be/OBqf061-SFc)  in 3 minutes.
+ 👀 Watch my [Introduction](https://youtu.be/OBqf061-SFc)  in less than 3 minutes.
 
 
 [![About me: motivation, analytical thinking, adaptability](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Youtubethumbnail.png)](https://www.youtube.com/watch?v=OBqf061-SFc)

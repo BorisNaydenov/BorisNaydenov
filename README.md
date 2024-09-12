@@ -14,8 +14,7 @@
  
  👀 Watch my [Introduction](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)  in less than 3 minutes.
 
-
-[![About me: skills and motivation](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/about%20mr.png)](hthttps://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)
+[![About me: skills and motivation](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/about%20mr.png)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)
 
 
 

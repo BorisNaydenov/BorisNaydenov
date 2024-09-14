@@ -12,7 +12,7 @@
 
  👀 Take a look at my data analysis projects in my repositories.
  
- 👀 Watch my [Introduction](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)  in less than half of 5 minutes.
+ 👀 Watch my [Introduction](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)  
 
 [![About me: skills and motivation](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/about%20mr.png)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)
 

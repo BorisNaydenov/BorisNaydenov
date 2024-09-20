@@ -2,7 +2,7 @@
 
 🌱 I like connecting the dots, solving problems and developing business relationships. 
 
-📫 How to reach me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> 
+📫 How to reach me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> Do not hesitate to call me on +49 1590 244 7610
 
   
 ⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book. 

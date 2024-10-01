@@ -2,19 +2,27 @@
 
 [![About me: skills and motivation](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Can%20you%20introduce%20yourself.png)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)
 
-👋 Hi, I’m @BorisNaydenov   
-
-🌱 I can be an asset by sharpening strategies, developing business relationships, and staying focused on the objectives and milestones.
-
-
-🌱 I like solving problems, analyzing and visualizing data insights, and creating content - from dashboards to ad banners.    
-
-
- 👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in  а relaxed YouTube setting as I share insights into my core skills and motivation.  
+👋 Hi, I’m @BorisNaydenov.   
  
- 👀 Please take a look at my data analysis projects in my repositories. Contact me if you need clarification.
+ :school_satchel: I am completing my Master's of International Business Administration.   
+ 
+ :school_satchel: My Europa-Universität is on the border between Germany and Poland.   
+   
+ :bear: And you can meet a lot of international, cool and smart people, like me.     
+ 
+ :bear: And the capital Berlin is a 1-hour smooth train ride away. It is not a bullet train, but it has smoking Wi-Fi.
 
-📫 How to contact me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> Do not hesitate to call me on +49 1590 244 7610
+:briefcase: I am motivated to bring value by staying focused on Objectives and Milestones.
+
+
+:briefcase: I can solve any problem, analyze and visualize Data insights, and create Content - from dashboards to ad banners.    
+
+
+ 👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube setting, sharing insights into my core Skills and Motivation.  
+ 
+ 👀 Please also take a look at my Data analysis projects in my Repositories. Contact me if you need clarification.
+
+📫 How to Contact me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> Do not hesitate to call me on +49 1590 244 7610
 
   
 ⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book. 

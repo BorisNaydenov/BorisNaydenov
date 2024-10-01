@@ -20,7 +20,7 @@
 :briefcase:  And your Team can benefit from my Fast learning, Data analysis, and Content creation SKILLS.  
 
 
- 👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube, revealing more about my Skills and Motivation.  
+ 👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube video, revealing more about my Skills and Motivation.  
  
  👀 Please also take a look at my Data analysis projects in my Repositories.
 

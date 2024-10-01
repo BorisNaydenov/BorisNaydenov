@@ -10,19 +10,21 @@
    
  :bear: And you can meet a lot of international, cool and smart people, like me.     
  
- :bear: And the capital Berlin is a 1-hour smooth train ride away. It is not a bullet train, but it has smoking Wi-Fi.
+ :bear: And the capital Berlin is a 1-hour smooth train ride away. 
+ 
+ :steam_locomotive:It is not a bullet train, but it has smoking Wi-Fi.  
 
 :briefcase: I am motivated to bring value by staying focused on Objectives and Milestones.
 
 
-:briefcase: I can solve any problem, analyze and visualize Data insights, and create Content - from dashboards to ad banners.    
+:briefcase: I can solve any problem, analyze and visualize Data insights, and create Content.  
 
 
- 👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube setting, sharing insights into my core Skills and Motivation.  
+ 👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube, revealing more about my Skills and Motivation.  
  
- 👀 Please also take a look at my Data analysis projects in my Repositories. Contact me if you need clarification.
+ 👀 Please also take a look at my Data analysis projects in my Repositories.
 
-📫 How to Contact me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> Do not hesitate to call me on +49 1590 244 7610
+📫 How to Contact me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . Or call me on +49 1590 244 7610
 
   
 ⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book. 

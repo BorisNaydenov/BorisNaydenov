@@ -2,9 +2,16 @@
 
 [![About me: skills and motivation](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Can%20you%20introduce%20yourself.png)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)
 
-👋 Hi, I’m @BorisNaydenov and  I’m looking to collaborate on projects that bring value. 
+👋 Hi, I’m @BorisNaydenov 
 
 🌱 I like connecting the dots, solving problems and developing business relationships. 
+
+
+ 👀 Watch my [Introduction](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in YouTube
+ 
+ 👀 Take a look at my data analysis projects in my repositories.
+ 
+ 
 
 📫 How to reach me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> Do not hesitate to call me on +49 1590 244 7610
 
@@ -13,10 +20,7 @@
 
 ⚡So the "Fun fact" shows my critical thinking skill but is it a fun fact?
 
-
- 👀 Take a look at my data analysis projects in my repositories.
- 
- 👀 Watch my [Introduction](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)  
+  
 
 
 

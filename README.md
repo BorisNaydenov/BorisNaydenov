@@ -4,8 +4,9 @@
 
 👋 Hi, I’m @BorisNaydenov 
 
-🌱 I like connecting the dots, solving problems and developing business relationships. 
+🌱 I like solving problems, analyzing and visualizing data insights, and creating content - from dashboards to ad banners.    
 
+🌱 I can be an asset by sharpening strategies, developing business relationships, and staying focused on the objectives and milestones.
 
  👀 Watch my [Introduction](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in YouTube
  

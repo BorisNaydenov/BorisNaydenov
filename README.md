@@ -27,9 +27,7 @@
 📫 How to Contact me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . Or call me on +49 1590 244 7610
 
   
-⚡ Fun fact: I discovered a mistake in a Finance and Investments student's book. 
 
-⚡So the "Fun fact" shows my critical thinking skill but is it a fun fact?
 
   
 

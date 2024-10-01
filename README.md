@@ -12,12 +12,12 @@
  
  :bear: And the capital Berlin is a 1-hour smooth train ride away. 
  
- :steam_locomotive:It is not a bullet train, but it has smoking Wi-Fi.  
+ :steam_locomotive:It is not a bullet train, but it has smoking Wi-Fi. And if I have Wi-Fi connection...   
 
-:briefcase: I am motivated to bring value by staying focused on Objectives and Milestones.
+:briefcase: I can solve any problem. Because like a bullet, I am focused on reaching Targets and Objectives.
 
 
-:briefcase: I can solve any problem, analyze and visualize Data insights, and create Content.  
+:briefcase:  And your Team can benefit from my Fast learning, Data analysis, and Content creation SKILLS.  
 
 
  👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube, revealing more about my Skills and Motivation.  

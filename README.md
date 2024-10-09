@@ -14,10 +14,10 @@
  
  :steam_locomotive:It is not a bullet train, but it has smoking Wi-Fi. And if I have Wi-Fi connection...   
 
-:briefcase: I can solve any problem. Because like a bullet, I am focused on reaching Targets and Objectives.
+:briefcase: ...I can solve any problem. Because like a bullet, I am focused on reaching Targets.
 
 
-:briefcase:  And your Team can benefit from my Fast learning, Data analysis, and Content creation SKILLS.  
+:briefcase:  And your Team can benefit from my Organizational, Data, and Business SKILLS.  
 
 
  👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube video, and take a look at my Data analysis projects in Repositories.

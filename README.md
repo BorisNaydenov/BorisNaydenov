@@ -8,7 +8,7 @@
  
  :school_satchel: My Europa-Universität is on the border between Germany and Poland.   
    
- :bear: And you can meet a lot of international, good, cool and smart people.     
+ :bear: And you can meet a lot of international, cool and smart people.     
  
  :bear: And the capital Berlin is a 1-hour smooth train ride away. 
  

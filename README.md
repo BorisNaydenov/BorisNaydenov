@@ -20,9 +20,7 @@
 :briefcase:  And your Team can benefit from my Fast learning, Data analysis, and Content creation SKILLS.  
 
 
- 👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube video, revealing more about my Skills and Motivation.  
- 
- 👀 Please also take a look at my Data analysis projects in my Repositories.
+ 👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube video, and take a look at my Data analysis projects in Repositories.
 
 📫 How to Contact me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . Or call me on +49 1590 244 7610
 

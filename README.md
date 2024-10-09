@@ -12,7 +12,7 @@
  
  :bear: And the capital Berlin is a 1-hour smooth train ride away. 
  
- :steam_locomotive:It is not a bullet train, but it has smoking Wi-Fi. And if I have Wi-Fi connection...   
+ :steam_locomotive: It is not a bullet train, but it has smoking Wi-Fi. And if I have Wi-Fi connection...   
 
 :briefcase: ...I can solve any problem. Because like a bullet, I am focused on reaching Targets.
 

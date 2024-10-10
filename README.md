@@ -6,11 +6,15 @@
  
  👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube video, and look at my Data projects in Repositories.
 
-📫 How to Contact me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . Or call me on +49 1590 244 7610
+📫 How to Contact me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . Or call me on +49 1590 244 7610 
+
+<br><br>
 
 :money_with_wings: Hey, if you are unsure about me as a company fit. I cannot keep on selling myself.  
 
-:money_with_wings: But, I can sell you something that will drive progress for your organization.    
+:money_with_wings: But, I can sell you something that will drive progress for your organization.  
+
+
 
 :gem: Because people are those that drive organizations towards success.      
 

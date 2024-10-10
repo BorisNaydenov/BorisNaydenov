@@ -17,7 +17,7 @@
 :money_with_wings: But, I can sell you something that will drive progress for you and your organization.  
 
 
-:gem: You can have actionable research on how to hire A-players only.     
+:gem: You can have actionable research on how to Hire A-players only.     
 
 :gem: Do not leave your growth behind. Click on the photo below.  
 <br>

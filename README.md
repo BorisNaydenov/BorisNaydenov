@@ -26,9 +26,12 @@
 
 :money_with_wings: Hey, if you are unsure about me as a company fit. I cannot keep on selling myself.  
 
-:gem: But, I can sell you something that will drive progress for your organization.   
-:gem: Because people are those that drive organizations towards success.    
-:gem: You can have actionable research on how to hire A-players only.   
+:money_with_wings: But, I can sell you something that will drive progress for your organization.    
+
+:gem: Because people are those that drive organizations towards success.      
+
+:gem: You can have actionable research on how to hire A-players only.     
+
 :gem: Do not leave your growth behind. Click on the photo below.  
 
 [![Ay](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Designer.jpeg)](https://borissnayden.gumroad.com/l/ruihnmq)

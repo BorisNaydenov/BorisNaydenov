@@ -8,7 +8,7 @@
  
  👀 [Watch Me](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT) in а relaxed YouTube video, and look at my Data projects in Repositories.
 
-📫 How to Contact me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . Or call me on +49 1590 244 7610 
+📫 How to Contract me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . Or call me on +49 1590 244 7610 
 
 <br>
 

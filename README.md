@@ -17,17 +17,21 @@
 
 
 
-🚥 I crafted a guide that will drive progress for you and your organization.  
+🚥 I have a guide for you that will make you shine among your team...
 
 <br>
 
 
-:gem: You can have actionable research on how to Hire A-players. This is a must-have guide for any type of organization.     
+:gem: A must-have guide for any organization. And if your internal knowledge system does not have it...    
 
 
-:gem: And if your internal knowledge system does not have it. Your hiring managers will play the negative odds. 
+:gem: You and your hiring managers will play the negative odds. 
 
-:gem: Do not leave your growth behind. Click on the photo below to buy it and let's be progressive.  
+:gem: The offer is Big Tech's research on how to Hire A-players. 
+
+:gem: Save yourself and your team the time. Make everybody's life easier and surround yourself with the Best.
+
+:gem: Amaze your top management - the expense is well worth it. Click on the photo below to get it.
 <br>
 
 [![Ay](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Designer.jpeg)](https://borissnayden.gumroad.com/l/ruihnmq)

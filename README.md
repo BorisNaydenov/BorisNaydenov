@@ -4,9 +4,9 @@
 
 <br>
 
-👋 Hi, I’m @BorisNaydenov. [Watch Me in а relaxed YouTube video :)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)  
+👋 Hi, I’m @BorisNaydenov. Watch me in а relaxed [YouTube video :)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)  
  
- 👀 Look at my Projects in Repositories - from Data, Finance, and Statistics to Sales, Marketing, and Taxation.
+ 👀 Look at my projects in Repositories - from Data, Finance, and Statistics to Sales, Marketing, and Taxation.
 
 📫 How to Contract me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . Call me on +49 1590 244 7610 or 
  [Reserve a 20 min slot](https://calendar.app.google/eNwAEaZ4HGrDLoR4A). 

@@ -21,7 +21,7 @@
 
 :gem: And if your internal knowledge system does not have it. Your hiring managers will play the negative odds. 
 
-:gem: Do not leave your growth behind. Click on the photo below.  
+:gem: Do not leave your growth behind. Click on the photo below to buy it and let's be progressive.  
 <br>
 
 [![Ay](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Designer.jpeg)](https://borissnayden.gumroad.com/l/ruihnmq)

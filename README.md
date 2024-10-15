@@ -33,7 +33,7 @@
 
 :gem: Save yourself and your team the time. Make everybody's life easier and surround yourself with the Best.
 
-:gem: Amaze your top management - the expense is well worth it. Click on the photo below to get it.
+:gem: Amaze your top management - the expense is well worth it. **Click on the photo below to get it.**
 <br>
 
 [![Ay](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Designer.jpeg)](https://borissnayden.gumroad.com/l/ruihnmq)

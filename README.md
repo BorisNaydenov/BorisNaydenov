@@ -6,9 +6,11 @@
 
 👀 Hi, I’m @BorisNaydenov. Watch me in а relaxed [YouTube video :)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)  
  
- 👀 Look at my projects in Repositories - from Data, Finance, and Statistics to Sales, Marketing, and Taxation.
+ 👀 Look at my projects in Repositories - Data, Finance, Marketing.
 
-👀 How to Contract me: <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . Call me on +49 1590 244 7610 or 
+👀 How to Contract me:                <a href="mailto:borissnaydenov@gmail.com">Email</a> or <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . 
+
+👀 Call me on +49 1590 244 7610 or 
  [Reserve a 20 min slot](https://calendar.app.google/eNwAEaZ4HGrDLoR4A). 
 
 <br>
@@ -22,7 +24,7 @@
 <br>
 
 
-:gem: A must-have guide for any organization. And if your internal knowledge system does not have it...    
+:gem: And if your internal knowledge system does not have it...    
 
 
 :gem: You and your hiring managers will play the negative odds. 

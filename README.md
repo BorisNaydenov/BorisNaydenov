@@ -31,9 +31,9 @@
 
 :gem: The offer is Big Tech's research on how to Hire A-players. 
 
-:gem: Save yourself and your team the time. Make everybody's life easier and surround yourself with the Best.
+:gem: Save yourself and your team the time. Amaze your top management! 
 
-:gem: Amaze your top management - the expense is well worth it. **Click on the photo below to get it.**
+:gem:  Thee expense is well worth it. **Click on the photo below to get it.**
 <br>
 
 [![Ay](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Designer.jpeg)](https://borissnayden.gumroad.com/l/ruihnmq)

@@ -15,12 +15,15 @@
 
 🚥 If you are unsure about me as a company fit, but want to help and make me happy... 
 
-<br>
+
 
 📌 I crafted a guide that will drive progress for you and your organization.  
 
+<br>
 
-:gem: You can have actionable research on how to Hire A-players. This is a must-have guide for any type of organization.   
+
+:gem: You can have actionable research on how to Hire A-players. This is a must-have guide for any type of organization.     
+
 
 :gem: And if your internal knowledge system does not have it. Your hiring managers will play the negative odds. 
 

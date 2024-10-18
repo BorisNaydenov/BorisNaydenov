@@ -36,7 +36,7 @@
 
 :gem: Save yourself and your team the time. Amaze your top management! 
 
-:point_down:   **Click on the photo below to learn more and get it**
+:point_down:   **Click on the photo below to learn more and get it 20% cheaper through my link.**
 <br>
 
 [![Ay](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Designer.jpeg)](https://borissnayden.gumroad.com/l/ruihnmq)

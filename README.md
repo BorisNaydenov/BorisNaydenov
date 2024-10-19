@@ -4,11 +4,13 @@
 
 <br>
 
-:hand: Hi, I’m @BorisNaydenov. Watch me in а relaxed [YouTube video :)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)  
+:hand: Hi, I’m @BorisNaydenov. 
  
- 👀 Look at my projects in Repositories - Data, Finance, Marketing.
+ 📹: See me in а relaxed [YouTube video :)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)     
+ 
+ 🧮: Look at my projects in Repositories - Data Analytics, Marketing and more.
 
-👀 How to Contact me:                <a href="mailto:borissnaydenov@gmail.com">Email</a> , <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . [Reserve a 20 min slot](https://calendar.app.google/eNwAEaZ4HGrDLoR4A). 
+ 🐦: How to Contact me:                <a href="mailto:borissnaydenov@gmail.com">Email</a> , <a href="https://www.linkedin.com/in/boris-naydenov/">LinkedIn</a> . [Reserve a 20 min slot](https://calendar.app.google/eNwAEaZ4HGrDLoR4A). 
 
 
   

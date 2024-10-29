@@ -1,6 +1,5 @@
 
 
-[![About me: skills and motivation](https://github.com/BorisNaydenov/BorisNaydenov/blob/main/Can%20you%20introduce%20yourself.png)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)
 
 <be>
 

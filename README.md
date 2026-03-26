@@ -4,8 +4,7 @@
 <be>
 
 :hand: Hi, I’m @BorisNaydenov. 
- 
- 📹: See me in а relaxed [YouTube video :)](https://youtu.be/Za_QAHPWQnw?si=tH9PpevlxNYDtxPT)     
+
  
  🧮: Look at my projects in Repositories - Data Analytics, Marketing and more.
 
